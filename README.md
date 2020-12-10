@@ -16,7 +16,7 @@ Personal goals template Una Kravets made open source for accessibility across co
 - [ ] 5 Sessions of TEFL              (0/5)
 - [ ] 5 Sessions of Algebra           (0/5)
 - [ ] 5 Sessions of Exercise          (0/5) (x minutes) (x distance)
-- [ ] 1 session of Exercse as benchmark
+- [ ] 1 session of Exercise as benchmark
 - [ ] Give TEFL update on Twitter     (0/5)
 - [ ] Give Algebra udpate on Twitter  (0/5)
 - [ ] Give exercise update on Twitter (0/5)
@@ -25,7 +25,7 @@ Personal goals template Una Kravets made open source for accessibility across co
 
 - [ ] Increase Time Studied Each Day by x Pomodoro segments
 - [ ] Add more 100 day challenges as I get comfortable with my original challenges
-- [ ] Complete Learning How to Learn Certificate
-- [ ] Complete Learnign How to Learn Anki flash cards
+- [ ] Complete Learning how to Learn Certificate
+- [ ] Complete Learning How to Learn Anki flash cards
 - [ ] Complete TEFL Anki flash cards
 - [ ] Complete Algebra Anki flash cards
