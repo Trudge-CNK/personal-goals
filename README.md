@@ -1,30 +1,19 @@
 Personal Goals
 ==============
+Personal goals template Una Kravets made open source for accessibility across computers she uses, transparency, accountability, and versioning. Learn more about it [here](http://una.im/personal-goals-guide).
 
-Personal goals made open source for accessibility across computers I use, transparency, accountability, and versioning. Learn more about it [here](http://una.im/personal-goals-guide).
+# Overarching Goals for 2021: [100 Day Challenges]
+1. Audit the Pathfinder TEFL              (start 12/11/2020)
+2. Relearn school subjects so I can tutor (start 12/11/2020)
+3. Consistent Exercise                    (start 12/11/2020)
 
-# Overarching Goals for 2017: [Make an Impact](http://una.im/2016-review/)
-1. JavaScript
-2. Be a Teacher
-3. Stay Experimental
-4. Publish a Book
-5. Start Running Again
+# [12/11/2020-12/16/2020]
 
-I'm also doing 5 25-Days Projects in 2017:
-
-1. ⭕ Running
-2. 🌀 Writing Letters
-3. ✅ Mentorship
-4. ✅ Dev Doodles
-5. ✅ Meditation (23 consecutive)
-
-# [Date Normally Goes Here]
-
-### This Week's Focus: N/A
+### This Week's Focus: Work on each topic just a little bit each weekday.
 
 ### Things I'll do This Week:
 
-I haven't done this in a while, since I've moved to my bullet journal in September. However, you can look through the archive for ideas :) It's helped me for about 3 years!
+1. - [  ]
 
 ### Things I'll Do in the Future:
 
