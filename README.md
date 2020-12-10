@@ -13,7 +13,7 @@ Personal goals template Una Kravets made open source for accessibility across co
 
 ### Things I'll do This Week:
 
-1. - [  ]
+- [ ]
 
 ### Things I'll Do in the Future:
 
