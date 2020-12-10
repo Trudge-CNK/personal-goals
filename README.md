@@ -13,22 +13,14 @@ Personal goals template Una Kravets made open source for accessibility across co
 
 ### Things I'll do This Week:
 
-- [ ]
+- [ ] 5 Sessions of TEFL              (0/5)
+- [ ] 5 Sessions of Algebra           (0/5)
+- [ ] 5 Sessions of Exercise          (0/5) (x minutes) (x distance)
+- [ ] Give TEFL update on Twitter     (0/5)
+- [ ] Give Algebra udpate on Twitter  (0/5)
+- [ ] Give exercise update on Twitter (0/5)
 
 ### Things I'll Do in the Future:
 
-- [ ] Read through all of Google's [Web Fundamentals](https://developers.google.com/web/fundamentals/)
-- [ ] Build something cool with Arduino
-- [ ] Create my own, or work on helping build a cleaner JS presentation framework
-- [ ] Create a typeface (hand-lettered monospace)
-- [ ] Make an electron app
-- [ ] Build a SlackBot (MyTime)
-- [ ] Every Day App (Happy moments or X-Days Projects)
-- [ ] Take this [online elecctronics class](http://www.instructables.com/class/Electronics-Class/)
-- [ ] Finish [JavaScript 30](https://javascript30.com/)
-- [ ] "Walk Me Through JS" Video Series
-- [ ] Toolsday & Web Love stickers
-- [x] Implement offline support for my blog
-- [ ] Build an Offline Web App (Heiroglyph)
-- [ ] Raise money for women in tech organizations
-- [x] Read [Resilient Web Design](https://resilientwebdesign.com/)
+- [ ] Increase Time Studied Each Day by x Pomodoro segments
+- [ ] Add more 100 day challenges as I get comfortable with my original challenges
