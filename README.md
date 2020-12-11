@@ -16,7 +16,6 @@ Personal goals template Una Kravets made open source for accessibility across co
 - [ ] 5 Sessions of TEFL              (0/5)
 - [ ] 5 Sessions of Algebra           (0/5)
 - [ ] 5 Sessions of Exercise          (0/5) (x minutes) (x distance)
-- [ ] 1 session of Exercise as benchmark
 - [ ] Give TEFL update on Twitter     (0/5)
 - [ ] Give Algebra udpate on Twitter  (0/5)
 - [ ] Give exercise update on Twitter (0/5)
