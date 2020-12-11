@@ -8,6 +8,8 @@ Video Games
 - [ ] Crash Team Racing: Nitro-Refueled (Switch)
 - [ ] Donkey Kong Country Returns Tropical Freeze (Switch)
 - [ ] Pokemon Shield (Switch)
+- [ ] Borderlands Remastered Melee/Shotgun Co-op
+- [ ] Borderlands 3 Co-op
 
 TV
 - [ ] Community
