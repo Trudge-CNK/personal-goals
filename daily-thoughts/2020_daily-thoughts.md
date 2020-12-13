@@ -1,6 +1,10 @@
 **12/11/2020**
 ---
 I unintentionally stressed myself out a little by how I arranged my reward structure. I wanted to do either 1:1 or 1:2 work to play ratio according to time, but 1:2 seemed to easy. I changed everything to 1:1, but that made me stress out everytime I used my time to take a break, which led to me just throwing the rules away instead of working with them. Instead of making everything time-bound, I'm going to keep the same ratios, and I'm going to instead focus everything on tasks rather than time.
+I also ended up wasting a good bit of time because I havent' figured out how to spend time properly with the puppy. I was planning on tiring him out, but instead he napped on me for like 3 hours which killed my entire morning. Which, of course, lead to the death of the entire rest of the day.
   
 **12/12/2020**
+---
+Not a whole bunch to say. I ended up not being able to make a solid transition between work and home (possiby because I wanted to watch the puppy?). Without a smooth transition, I just ended up not really accomplishing anything.
+**12/13/2020**
 ---
