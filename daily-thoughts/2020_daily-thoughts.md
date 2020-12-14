@@ -6,5 +6,11 @@ I also ended up wasting a good bit of time because I havent' figured out how to 
 **12/12/2020**
 ---
 Not a whole bunch to say. I ended up not being able to make a solid transition between work and home (possiby because I wanted to watch the puppy?). Without a smooth transition, I just ended up not really accomplishing anything.
+  
 **12/13/2020**
 ---
+Using task based 1:1 work:play ratios worked pretty well, but I have to be watching that I don't overextend in play so I had to make a list of what counted as a work session vs a play session. I also ended up adding a rule that I should always have an alarm for naps since I took a nap that wasted a good chunk of the afternoon. I was able to keep to pretty much all my smaller todos, but the lost time from the nap killed any chances at larger projects.
+  
+**12/14/2020**
+---
+
