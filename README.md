@@ -2,10 +2,11 @@ Personal Goals
 ==============
 Personal goals template Una Kravets made open source for accessibility across computers she uses, transparency, accountability, and versioning. Learn more about it [here](http://una.im/personal-goals-guide).
 
-# Overarching Goals for 2021: [100 Day Challenges]
-1. Audit the Pathfinder TEFL              (start 12/11/2020)
-2. Relearn school subjects so I can tutor (start 12/11/2020)
-3. Consistent Exercise                    (start 12/11/2020)
+# Overarching Goals for 2021: [100 Hour Challenges]
+1. Pathfinder TEFL                        (start 12/11/2020)
+2. Algebra                                (start 12/11/2020)
+3. DDR                                    (start 12/11/2020)
+4. Stationary Bike                        (start 12/16/2020)
 
 # [12/11/2020-12/16/2020]
 
