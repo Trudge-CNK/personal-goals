@@ -13,4 +13,7 @@ Using task based 1:1 work:play ratios worked pretty well, but I have to be watch
   
 **12/14/2020**
 ---
-
+I got a good workout since I had to kayak a lot at work, but we ended up messing up so we'll have to have another huge kayak day later. I took a whole bunch of long naps throughout the day and even ended up sleeping somehwere that wasn't my room for the night. I did end up keeping myself to my work:play ratios, but I was kind of running thin on what I counted as work by the end of the day.
+  
+**12/15/2020**
+---
