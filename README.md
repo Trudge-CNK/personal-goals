@@ -3,6 +3,8 @@ Personal Goals
 Personal goals template Una Kravets made open source for accessibility across computers she uses, transparency, accountability, and versioning. Learn more about it [here](http://una.im/personal-goals-guide).
 
 # Overarching Goals for 2021: [100 Hour Challenges]
+## Thanks to https://modernmrsdarcy.com/100-hour-rule/
+
 1. Pathfinder TEFL                        (start 12/11/2020)
 2. Algebra                                (start 12/11/2020)
 3. DDR                                    (start 12/11/2020)
