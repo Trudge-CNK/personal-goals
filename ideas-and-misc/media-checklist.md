@@ -20,6 +20,7 @@ TV
 - [ ] Digimon:
 - [ ] Daicon III
 - [ ] Daicon IV
+- [ ] My Hero Academia
 
 Movies
 
