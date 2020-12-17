@@ -18,3 +18,7 @@ I got a good workout since I had to kayak a lot at work, but we ended up messing
 **12/15/2020**
 ---
 This day was pretty decent. I pretty much finished Christmas shopping so I just have to wait for the gifts to come back in. I found some new ways to play with the puppy so that'll keep both of us entertained. The main difference was that I think I finally found something that I can be focused on. Part of it was that I changed my 100 day challenges to 100 hour challenges, which puts lets focus on me being incredibly consistent, and it also allows me to go hog wild on a topic if I so desire. The other change was that I added a bunch of personal "ghosts" for me to race against and improve. I got the idea because I've been playing a kart racer on Switch, and lot of racing games have recordings or "ghosts" of your best times you can race against. I'm in a weird place in life where I'm not the best at anything, so it's nice to be able to race against myself instead of putting my barometer against other people that are really successful or skilled.
+
+**12/16/2020**
+---
+This day was pretty good. I didn't make a whole bunch of movement, but I started working in the Learning How to Learn course from Coursera. The other main takeaway was that I got to spend some time with my sister since she needed a ride. She's really enjoying her physical therapy rotation, which is great news. She got hers pretty late in the game, but she ended up with one of the best rotations. Other than that, we just got to hang out for a few hours together. It was nice.
