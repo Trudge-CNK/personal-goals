@@ -22,3 +22,7 @@ This day was pretty decent. I pretty much finished Christmas shopping so I just 
 **12/16/2020**
 ---
 This day was pretty good. I didn't make a whole bunch of movement, but I started working in the Learning How to Learn course from Coursera. The other main takeaway was that I got to spend some time with my sister since she needed a ride. She's really enjoying her physical therapy rotation, which is great news. She got hers pretty late in the game, but she ended up with one of the best rotations. Other than that, we just got to hang out for a few hours together. It was nice.
+
+**12/17/2020**
+---
+This day was awkward. I had a difficult reading in the morning that threw me off for the entire day. I did start trying to actually improve my skill at a video game vs just running through the story mode so that's actually a big difference for me. Other than that, I mainly just spent time with the puppy so it was relaxing, but I never really hunkered down to recover and be more productive later in the day.
