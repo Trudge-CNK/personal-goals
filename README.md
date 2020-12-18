@@ -9,25 +9,14 @@ Personal goals template Una Kravets made open source for accessibility across co
 2. Algebra                                (start 12/11/2020)
 3. DDR                                    (start 12/11/2020)
 4. Stationary Bike                        (start 12/16/2020)
+5. Learning How to Learn Coursera
 
-# [12/11/2020-12/16/2020]
+# [12/16-12/22]
 
-### This Week's Focus: Work on each topic just a little bit each weekday.
+### This Week's Focus:
+Work on each area when I have time so I can look back on the progress I've made compared to 12/15
 
 ### Things I'll do This Week:
 
-- [ ] 5 Sessions of TEFL              (0/5)
-- [ ] 5 Sessions of Algebra           (0/5)
-- [ ] 5 Sessions of Exercise          (0/5) (x minutes) (x distance)
-- [ ] Give TEFL update on Twitter     (0/5)
-- [ ] Give Algebra udpate on Twitter  (0/5)
-- [ ] Give exercise update on Twitter (0/5)
-
 ### Things I'll Do in the Future:
 
-- [ ] Increase Time Studied Each Day by x Pomodoro segments
-- [ ] Add more 100 day challenges as I get comfortable with my original challenges
-- [ ] Complete Learning how to Learn Certificate
-- [ ] Complete Learning How to Learn Anki flash cards
-- [ ] Complete TEFL Anki flash cards
-- [ ] Complete Algebra Anki flash cards
