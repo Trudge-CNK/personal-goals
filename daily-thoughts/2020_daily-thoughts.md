@@ -26,3 +26,7 @@ This day was pretty good. I didn't make a whole bunch of movement, but I started
 **12/17/2020**
 ---
 This day was awkward. I had a difficult reading in the morning that threw me off for the entire day. I did start trying to actually improve my skill at a video game vs just running through the story mode so that's actually a big difference for me. Other than that, I mainly just spent time with the puppy so it was relaxing, but I never really hunkered down to recover and be more productive later in the day.
+
+**12/18/2020**
+---
+I finished up the second season of the Mandalorian today. It was a fun ride, and I'm curious to see how they move forward with the story. I had some work where we were on a frozen pond. I was the only one really light enough to shuffle across the ice so I got to skate around while everyone else either broke through the ice or just sat on the bank. We weren't successful, but I had a lot of fun. Unfortunatley, I don't have a really good mechanism to switch from fairly unexpected work to a productive afternoon so I wasted some time before I had to carpool my sister since her car is states away. I was glad to be able to help out family, but I didn't really get much done today.
