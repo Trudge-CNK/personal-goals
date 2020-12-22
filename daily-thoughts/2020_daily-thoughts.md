@@ -38,3 +38,6 @@ I had a really productive morning, but I haven't figured out a good way to handl
 **12/20/2020**
 ---
 This day was a boring one. I didn't get much done, but I did hand around family a lot. My sister was running around cleaning stuff up for Mom since she's a bit of a neat freak sometimes. The only thing I really did all day was get back into Yugioh by playing with my Progression Series discord. I ended up getting trashed in all 5 of my matches so that was rough. I guess I have to go back to the drawing board if I'm going to snag any wins. I have been thinking of changing my life focus over to ~100 challenges, whether that's hours or days. I'm not a person who has a whole bunch of passions, but I wouldn't mind being a bit of a Renaissance man and trying out a whole bunch of things to see if anything sticks.
+
+**12/21/2020**
+Not proud of today, honestly. I got a lot of my room cleaned up, and I got a haircut, but I didn't really do much else. I always get into situations where I let myself be torn between my current productivity plans and my future productivity plans, pretending that a different approach will be a magic bullet. Hopefully I'll transition to doing 100x challenges(days, hours, times) sometime tomorrow so I can really get back to what I want to focus on.
