@@ -41,3 +41,8 @@ This day was a boring one. I didn't get much done, but I did hand around family 
 
 **12/21/2020**
 Not proud of today, honestly. I got a lot of my room cleaned up, and I got a haircut, but I didn't really do much else. I always get into situations where I let myself be torn between my current productivity plans and my future productivity plans, pretending that a different approach will be a magic bullet. Hopefully I'll transition to doing 100x challenges(days, hours, times) sometime tomorrow so I can really get back to what I want to focus on.
+
+**12/22/2020**
+I finally decided on making some 100x challenges, where the x stands for hours, days, etc. I think that will be my focus from now on. I'll just try to be a slight Renaissance man and see which focuses inspire me as I learn them. Then, my 100 hour challenges can turn into 200 hours, 500 hours, or 1000 hours....
+
+My family also came to visit. It's been our one real risk we've taken during the whole virus since we only have a chance to see them once a year. It was really nice seeing them and especially having them meet the puppy. He was apprehensive at first, but he ended up getting along with everyone really well.
