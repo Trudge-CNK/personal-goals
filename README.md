@@ -22,6 +22,15 @@ I want my main focus to be on the hourly challenges since I can burn through the
 require an entire day to get to a count of 1.
 
 ### Things I'll do This Week:
+1. Work through 2 Corinthians
+2. Start making personal posts on twitter instead of just liking posts
+3. Work on updating this personal-goals page to be more filled out as my daily journal
+4. Work towards finishing Learning How to Learn from Coursera.
+5. Learn as much as I can about the Goat format in Yugioh
+6. Work through all the N. Trophy times on CTR.
 
 ### Things I'll Do in the Future:
-
+1. Work through Galatians
+2. Work through Mindshift on Coursera
+3. Review my own Yugioh matches
+4. Work through all the Oxide times on CTR
