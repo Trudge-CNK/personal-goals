@@ -2,19 +2,24 @@ Personal Goals
 ==============
 Personal goals template Una Kravets made open source for accessibility across computers she uses, transparency, accountability, and versioning. Learn more about it [here](http://una.im/personal-goals-guide).
 
-# Overarching Goals for 2021: [100 Hour Challenges]
-## Thanks to https://modernmrsdarcy.com/100-hour-rule/
+# Overarching Goals for 2021: [100XofX Challenges]
+## Thanks to https://modernmrsdarcy.com/100-hour-rule/ (100 hours of x)
+## Thanks to 100DaysofCode (100 days of x)
 
-1. Pathfinder TEFL                        (start 12/11/2020)
-2. Algebra                                (start 12/11/2020)
-3. DDR                                    (start 12/11/2020)
-4. Stationary Bike                        (start 12/16/2020)
-5. Learning How to Learn Coursera
 
-# [12/16-12/22]
+1. 100 chapters of devotions
+2. 100 updates of Twitter
+3. 100 entries of my journal
+4. 100 days of 1:1 work:play
+7. 100 hours of learning
+8. 100 hours of Yugioh
+9. 100 hours of Crash Team Racing
+
+# [1/1/2021-1/7/2021]
 
 ### This Week's Focus:
-Work on each area when I have time so I can look back on the progress I've made compared to 12/15
+I want my main focus to be on the hourly challenges since I can burn through them more quickly than the others, which
+require an entire day to get to a count of 1.
 
 ### Things I'll do This Week:
 
