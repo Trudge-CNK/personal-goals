@@ -11,9 +11,9 @@ Personal goals template Una Kravets made open source for accessibility across co
 2. 100 updates of Twitter
 3. 100 entries of my journal
 4. 100 days of 1:1 work:play
-7. 100 hours of learning
-8. 100 hours of Yugioh
-9. 100 hours of Crash Team Racing
+5. 100 hours of learning
+6. 100 hours of Yugioh
+7. 100 hours of Crash Team Racing
 
 # [1/1/2021-1/7/2021]
 
@@ -22,12 +22,12 @@ I want my main focus to be on the hourly challenges since I can burn through the
 require an entire day to get to a count of 1.
 
 ### Things I'll do This Week:
-1. Work through 2 Corinthians
-2. Start making personal posts on twitter instead of just liking posts
-3. Work on updating this personal-goals page to be more filled out as my daily journal
-4. Work towards finishing Learning How to Learn from Coursera.
-5. Learn as much as I can about the Goat format in Yugioh
-6. Work through all the N. Trophy times on CTR.
+- [ ] Work through 2 Corinthians
+- [ ] Start making personal posts on twitter instead of just liking posts
+- [ ] Work on updating this personal-goals page to be more filled out as my daily journal
+- [ ] Work towards finishing Learning How to Learn from Coursera.
+- [ ] Learn as much as I can about the Goat format in Yugioh
+- [ ] Work through all the N. Trophy times on CTR.
 
 ### Things I'll Do in the Future:
 1. Work through Galatians
