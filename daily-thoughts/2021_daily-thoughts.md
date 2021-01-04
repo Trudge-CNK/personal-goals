@@ -9,3 +9,9 @@ I do have a few things I want to implement, though.
 1. I want to start a 100 hour challenge for Reddit and for Youtube so I can see how much they are invading my daily life.
 2. I want to focus on failing quickly. I just have to expect to fail but be happy that I'm at least attempting something.
 
+**1/3/2021**
+---
+I did actually manage to start a few things today so that was good. The main problem I had was that I also really wanted to find a way to relax for a bit
+without it adding onto my reddit or youtube hours. I ended up taking a ~4 hour nap, which I probably needed but which also just drained my motivation for the entire rest of the day.
+
+I had to start a 100 hour challenge for naps as well just as a way to keep track of how much time I'm using on naps compared to my actual goals.
