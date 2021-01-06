@@ -15,3 +15,11 @@ I did actually manage to start a few things today so that was good. The main pro
 without it adding onto my reddit or youtube hours. I ended up taking a ~4 hour nap, which I probably needed but which also just drained my motivation for the entire rest of the day.
 
 I had to start a 100 hour challenge for naps as well just as a way to keep track of how much time I'm using on naps compared to my actual goals.
+
+**1/4/2021**
+----
+I honestly just skipped journaling for this day on 1/5 so I'm not exactly sure if anything important happened. 
+
+**1/5/2021**
+----
+Not a great day. I'm house sitting for a good while longer now since my cousin decided he'd stay in Florida for an extra 10 days. It's for business-related reasons so it was much less frustrating once I heard the entire reason. My whole Yugioh server exploded when our beloved meme-lord left. I think it'll be interesting to see if any changes come from it or not. I did change some of my goals to be times or session-based rather than being based on days just becuase I'd like to burn through my goals quicker if possible. If I like the goal, I can always add more sessions onto it anyway. I'm not sure if it's necessary, but I feel like I need to find an overarching goal to keep me centered. I just know I can't keep going through the motions.
