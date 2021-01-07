@@ -23,3 +23,8 @@ I honestly just skipped journaling for this day on 1/5 so I'm not exactly sure i
 **1/5/2021**
 ----
 Not a great day. I'm house sitting for a good while longer now since my cousin decided he'd stay in Florida for an extra 10 days. It's for business-related reasons so it was much less frustrating once I heard the entire reason. My whole Yugioh server exploded when our beloved meme-lord left. I think it'll be interesting to see if any changes come from it or not. I did change some of my goals to be times or session-based rather than being based on days just becuase I'd like to burn through my goals quicker if possible. If I like the goal, I can always add more sessions onto it anyway. I'm not sure if it's necessary, but I feel like I need to find an overarching goal to keep me centered. I just know I can't keep going through the motions.
+
+**1/6/2021**
+---
+Not too much to say for this day. I did manage to get some salt for the driveway so that should help a lot traction wise. The first snow of the year was also freezing rain. Not a great combination. A podcast I was listening to sugggested that while grit and persistence are vital for any sort of success, it's also really important to design your life so that your lazy options are also your most productive options. I did catch up with my weekly watch-through of That Time I Got Reincarnated as a Slime. It's been a pretty funny show so far, but it does lean into being pervy which anime unfortunately tends to do...
+Other than that, a pretty lackluster day. I think I need to make habits so I can start my 100X challenges at certain times or segments of the day.
