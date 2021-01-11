@@ -29,13 +29,13 @@ Not a great day. I'm house sitting for a good while longer now since my cousin d
 Not too much to say for this day. I did manage to get some salt for the driveway so that should help a lot traction wise. The first snow of the year was also freezing rain. Not a great combination. A podcast I was listening to sugggested that while grit and persistence are vital for any sort of success, it's also really important to design your life so that your lazy options are also your most productive options. I did catch up with my weekly watch-through of That Time I Got Reincarnated as a Slime. It's been a pretty funny show so far, but it does lean into being pervy which anime unfortunately tends to do...
 Other than that, a pretty lackluster day. I think I need to make habits so I can start my 100X challenges at certain times or segments of the day.
 
-**1/7/2021**
+**1/7/2021**  
 ???
 
-**1/8/2021**
+**1/8/2021**  
 ???
 
-**1/9/2021**
+**1/9/2021**  
 ???
 
 **1/10/2021**
