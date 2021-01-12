@@ -42,3 +42,6 @@ Other than that, a pretty lackluster day. I think I need to make habits so I can
 ---
 Nothing really of consequence to write home about.
 
+**1/11/2021**
+I had a good chunk of ideas to carry out on the 11th, but I really lost track of the day after I came back from a work outing. I think I've managed to get around 10 days of ~20 minutes devotions in so that's really nice that something good is in my 10% finished category for my 100X challenges.Other than that, I don't really have a lot to say for the day except that I plan on making a food philosophy so that I don't spend the rest of my life guzzling down fast food and sugar.
+
