@@ -51,3 +51,6 @@ This day went a bit better. There's something that really works for me where I c
 **1/13/2021**
 I had a pretty good day. I got a good chunk of hours into my study of Yugioh's goat format such that I'm actually close to 10 hours in that goal. I still haven't made a really good trigger for changing over to something productive after lunch. I ended up eating lunch, napping a bit, and then piddling around till I was bored enough to start studying. I didn't do the worst after dinner, but at least my time was taken up by interesting youtube videos and online discussions rather than by random videos to kill time.
 
+**1/14/2021**
+I was actually really proud of today. I didn't have anything random in the middle of the day to throw me off so I was able to get a good rhythm going on some of my 100X challenges. I did tail off toward the end of the day though so I need to figure out how to reset better. I'm planning on sticking to a healthier food philosophy as a challenge since I can go on fast food binges sometimes. I want to add a challenge where I alternate between 100X challenges and regular todos since I have to balance improving myself and keeping my life stabilized. I really enjoyed having a good run with my 100X challenge yesterday, but I really skimped out on doing any todos that might have been on my list.
+
