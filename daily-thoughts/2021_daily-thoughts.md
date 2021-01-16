@@ -54,3 +54,6 @@ I had a pretty good day. I got a good chunk of hours into my study of Yugioh's g
 **1/14/2021**
 I was actually really proud of today. I didn't have anything random in the middle of the day to throw me off so I was able to get a good rhythm going on some of my 100X challenges. I did tail off toward the end of the day though so I need to figure out how to reset better. I'm planning on sticking to a healthier food philosophy as a challenge since I can go on fast food binges sometimes. I want to add a challenge where I alternate between 100X challenges and regular todos since I have to balance improving myself and keeping my life stabilized. I really enjoyed having a good run with my 100X challenge yesterday, but I really skimped out on doing any todos that might have been on my list.
 
+**1/15/2021**
+I'm finally done house sitting so that's nice that I can finally get back to my normal home life. Bad news for the day was that the shrimp at the Italian place I got takeout from wrecked my bowels. The other person I ate with was fine so that was a huge relief. It was her birthday so I'd rather me have issues than her. I didn't really get much done, but it was mostly because it was someone's birthday so I'm kind of ok with a slow day. 
+
