@@ -57,3 +57,7 @@ I was actually really proud of today. I didn't have anything random in the middl
 **1/15/2021**
 I'm finally done house sitting so that's nice that I can finally get back to my normal home life. Bad news for the day was that the shrimp at the Italian place I got takeout from wrecked my bowels. The other person I ate with was fine so that was a huge relief. It was her birthday so I'd rather me have issues than her. I didn't really get much done, but it was mostly because it was someone's birthday so I'm kind of ok with a slow day. 
 
+**1/16/2021**
+---
+I was about as productive as usual on Saturday's, which, unfortunately, is not very productive at all. I tend to have a lot of trouble watcing the puppy and also being productive. Once I've binged youtube for a while (since a lot of channels realease their content on Saturday), I'm kinda stuck in a lazy loop. I got so lazy I don't even really want to play the Yugioh tournaments that I participate in on the weekends. 1/17 Should be a little bit better because I don't have to watch the dog, though. I learned that Chipotle tastes good but looks awful when you order the cheese and corn but forgo lettuce. Instead of looking bright and refreshing, everything is just....yellow.
+
