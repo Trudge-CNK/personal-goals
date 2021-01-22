@@ -67,6 +67,13 @@ Wow today was bad. I got demotivated a lot during my devotions so I ended up spe
 **1/19/2021**
 Today was actually fairly productive. I mainly got a lot of todos done, but that's not so bad. The big time save that I came up with is that I'm under no obligation to catch up to a show I'm following daily. If I slip and don't watch an episode for a bit, I then have to make up for 2-3 hours of content of just watching TV. At my age, I don't need lapsed TV shows to take up possible productive time. 
 
-**1/20/202188**
+**1/20/2021**
 ---
 I spent a lot of the day freaking out becuase I realized that I was going to end the winter without having any "signature" accomplishment. I guess it hurt a lot becuase I have way more time in the winter so any big productive moves have to happen during thise months. The panic and disappointment kept me from doing anything productive til about 1, but, in the end, I decided to just continue doing what I've been doing. If I can't slowly achieve things like I set out to do, I'll never achieve anything. That's the whole point of trudging along.
+
+**1/21/2020**
+---
+I realized that, while I set my goal as learning 100 hours of Yugioh, I don't really have the faith that 100 hours of study will make me competitive in any real sense. I'm also afraid of losing time to a "children's card game". One part of me feels that thinking this makes me more mature, but it also continues my inability to do anything in my life for a long period of time.
+My Yugioh Solution at the time was that I need to be actually playing matches regularly and talking to people to see how much I'm improving rather than keeping everything theoretical until I finish my 100 hours.
+I added a planned Spotify break in the morning so I wouldn't tail off into youtube and random sitcoms.
+
