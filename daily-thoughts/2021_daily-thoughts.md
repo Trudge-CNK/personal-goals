@@ -77,3 +77,8 @@ I realized that, while I set my goal as learning 100 hours of Yugioh, I don't re
 My Yugioh Solution at the time was that I need to be actually playing matches regularly and talking to people to see how much I'm improving rather than keeping everything theoretical until I finish my 100 hours.
 I added a planned Spotify break in the morning so I wouldn't tail off into youtube and random sitcoms.
 
+**1/22/2020**
+---
+I got really thrown off yesterday becuase of a question at small group that was something like, "What one dream do you have would be difficult to give up if God asked you to? (referrring to how Abraham readily trusted God in the whole Isaac sacrifice thing). The thing that bothered me was that I didn't have any dream. There's nothing that I'm willing to go afte with 100% of my energy and there never really has been. That was tough to deal with, but eventually I had to reset and realize that the only thing I can really do is see what I have currently and try to rule over my sphere of influence like I've been asked to. I got inspired by the parable to the talents too that even if I only am given 1/100 of a talent, I should at least try to make it into 1/50 of a talent.
+After that realization, I mostly ended up doing todos since I had a dog gate to put up and dinner to make. Hopefully a new perspective will help me reach out in new directions more consistently.
+
