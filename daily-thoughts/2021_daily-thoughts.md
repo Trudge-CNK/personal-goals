@@ -71,14 +71,18 @@ Today was actually fairly productive. I mainly got a lot of todos done, but that
 ---
 I spent a lot of the day freaking out becuase I realized that I was going to end the winter without having any "signature" accomplishment. I guess it hurt a lot becuase I have way more time in the winter so any big productive moves have to happen during thise months. The panic and disappointment kept me from doing anything productive til about 1, but, in the end, I decided to just continue doing what I've been doing. If I can't slowly achieve things like I set out to do, I'll never achieve anything. That's the whole point of trudging along.
 
-**1/21/2020**
+**1/21/2021**
 ---
 I realized that, while I set my goal as learning 100 hours of Yugioh, I don't really have the faith that 100 hours of study will make me competitive in any real sense. I'm also afraid of losing time to a "children's card game". One part of me feels that thinking this makes me more mature, but it also continues my inability to do anything in my life for a long period of time.
 My Yugioh Solution at the time was that I need to be actually playing matches regularly and talking to people to see how much I'm improving rather than keeping everything theoretical until I finish my 100 hours.
 I added a planned Spotify break in the morning so I wouldn't tail off into youtube and random sitcoms.
 
-**1/22/2020**
+**1/22/2021**
 ---
 I got really thrown off yesterday becuase of a question at small group that was something like, "What one dream do you have would be difficult to give up if God asked you to? (referrring to how Abraham readily trusted God in the whole Isaac sacrifice thing). The thing that bothered me was that I didn't have any dream. There's nothing that I'm willing to go afte with 100% of my energy and there never really has been. That was tough to deal with, but eventually I had to reset and realize that the only thing I can really do is see what I have currently and try to rule over my sphere of influence like I've been asked to. I got inspired by the parable to the talents too that even if I only am given 1/100 of a talent, I should at least try to make it into 1/50 of a talent.
 After that realization, I mostly ended up doing todos since I had a dog gate to put up and dinner to make. Hopefully a new perspective will help me reach out in new directions more consistently.
+
+**1/26/2021**
+---
+I've just been really off for the past few days. I couldn't really get myself to even start anything because I do have a big mental block when it comes to thinking about big, overll goals. One one hand, I don't want my entire life to be a waste, but on the other, I don't realy trust myself enough to be successful where I can confidently follow any sort of large dream. I did listen to a Dr. Nerdlove podcast where there was a lady talking about re-patterning. The insight that I really liked was that when you're making positive affirmations, don't make them ones that you don't believe yourself. Even if it's not phenominal, if you believe it, you can more easily make progress. I tried to add some things so I'm more consistent in my 100x challenges, but the main thing that I added was a simple loop of Spotify to be able to focus, choosing what I'm doing next, and then returning right to Spotify to thinkn about the next step. Hopefully, I'll accomplish a lot of cool things, but my only real goal is to keep looping every day.
 
