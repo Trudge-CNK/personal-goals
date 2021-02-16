@@ -8,19 +8,20 @@ Video Games
 - [ ] Crash Team Racing: Nitro-Refueled (Switch)
 - [ ] Donkey Kong Country Returns Tropical Freeze (Switch)
 - [ ] Pokemon Shield (Switch)
-- [ ] Borderlands Remastered Melee/Shotgun Co-op
-- [ ] Borderlands 3 Co-op
 
 TV
 - [ ] Community
 - [ ] Taskmaster
 - [ ] Brooklyn 99
-- [ ] The Mandalorian
+- [X] The Mandalorian Season 2
 - [ ] That Time I Got Reincarnated as a Slime
 - [ ] Digimon:
-- [ ] Daicon III
-- [ ] Daicon IV
+- [X] Daicon III
+- [X] Daicon IV
 - [ ] My Hero Academia
+- [X] Chocolate Panic Picture Show
+- [X] Queen's Gambit
+- [ ] WandaVision
 
 Movies
 
