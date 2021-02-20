@@ -6,7 +6,7 @@ Feel free to add to the list!
 
 Video Games
 - [ ] Crash Team Racing: Nitro-Refueled (Switch)
-- [ ] Donkey Kong Country Returns Tropical Freeze (Switch)
+- [X] Donkey Kong Country Returns Tropical Freeze (Switch)
 - [ ] Pokemon Shield (Switch)
 
 TV
