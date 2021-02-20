@@ -108,3 +108,8 @@ Sunday was a weird day because I always see it as the end of my week. I ended up
 **2/18/2021**
 The main change I made was that I wanted to focus more on exerting myself during my exercise. I'm not working out crazy hard since all I'm doing is aerobics and an exercise bike while simultaneously watching TV. I did adjust it so I'm at max tension, and I sprint during commericals.
 Other than that, it was a pretty good day. I kept productive throughout the day mostly, although I slipped a bit in the middle of the day. I still ended up consuming entertainment in a healthy way, but I made sure to adjust things by focusing on the harder things in the morning. If I don't, I don't end up with enough willpower to do the tough things at the end of the day.
+
+**2/19/2021**
+---
+I ended up adding daily counters for my hourly goals so that I could update them on Twitter, etc. daily instead of forgetting to update people on them.
+Other than that, I had a decently productive day. I didn't get more than 1 hour of each of my main goals, but that's all that I've set out to do so I don't want to get mad at myself for that. I ended up finishing Donkey Kong Country: Tropical Freeze so that was nice. It was a pretty good platformer altogether, but I'll probably either "fix" my pro controller d-pad or swap to the joycons next time I play for completion so that I have a bit more control (the d-pad registers to many diagonal presses when obviously pressed down). Other than that, I got a few easy todos off of my list, but I managed to mess up on finishing my planned todos for the day.
