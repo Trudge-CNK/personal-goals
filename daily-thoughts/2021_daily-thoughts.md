@@ -128,4 +128,4 @@ It's sad, but I'm at absolute ground 0 for my career. My degree is 7 years old, 
 **1. Complete some sort of free programming bootcamp so that my future nieces and nephews can have a head start
   2. Consistently learn other academic subjects 100 hours at a time so I can help tutor those who need it
 **3. Keep my life vibrant by trying out different hobbies for 33 hours each**
----
+
