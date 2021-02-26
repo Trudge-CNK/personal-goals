@@ -129,3 +129,8 @@ It's sad, but I'm at absolute ground 0 for my career. My degree is 7 years old, 
   2. Consistently learn other academic subjects 100 hours at a time so I can help tutor those who need it
 **3. Keep my life vibrant by trying out different hobbies for 33 hours each**
 
+**2/25/2021**
+I really messed up on the 25th. I thought I had a good morning plan, but I forgot that I had my iOS alarm set to absolute silence. I woke up late which let to me just having a really lay day where nothing got done. I did end up setting up sounds for all my alarms, and I have a reset plan for any day in which I start to wander off into sad-binging content so I hope those work out to some degree.
+
+The 24th was actually pretty good though. I got a lot of todos done, and I managed to clock 3.5 hours in Crash Team Racing to close the gap to finishing one of my hourly goals by half. I don't have the breadth of focus that I'd like yet, but I'm glad that I was able to push so hard for at least one of my hourly goals.
+
