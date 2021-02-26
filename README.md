@@ -10,7 +10,7 @@ Personal goals template Una Kravets made open source for accessibility across co
 - [ ] 100 Hours of TEFL
 - [ ] 100 Hours of free code camp
 
-# [1/8/2021-1/14/2021]
+# [2/2021]
 
 ### This Month's Focus:
 I want to finish off Crash Team Racing so I actually have something done. I also want to then start distributing my time more equally between my tasks.
