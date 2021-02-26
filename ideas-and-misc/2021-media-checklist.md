@@ -10,7 +10,7 @@ Video Games
 - [ ] Pokemon Shield (Switch)
 
 TV
-- [ ] Community
+- [X] Community
 - [ ] Taskmaster
 - [ ] Brooklyn 99
 - [X] The Mandalorian Season 2
