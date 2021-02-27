@@ -134,3 +134,7 @@ I really messed up on the 25th. I thought I had a good morning plan, but I forgo
 
 The 24th was actually pretty good though. I got a lot of todos done, and I managed to clock 3.5 hours in Crash Team Racing to close the gap to finishing one of my hourly goals by half. I don't have the breadth of focus that I'd like yet, but I'm glad that I was able to push so hard for at least one of my hourly goals.
 
+**2/26/2021**
+---
+This day went fine. I made progress in a good amount of things. I didn't do perfectly, but I'm certainly not disappointed with myself. My biggest achievement was that I worked on Crash Team Racing Nitro-fueled for another 3.5 Hours on the 26th so that I could finish the first of my 33-Hour projects. Overall, I was a little bit disappointed with my choice to focus so hard on a game that none of my friends have, but the positive was that I finally got to see myself improve at something over a decently long length of time. Not that I was ever diagnosed as a "gifted" kid, but I was the "smartest" student in a really tiny school so I always thought that I had to know everything from the start. CTR proves that even if I start at a really average skill level, I can just take my time and eventually reach a fairly highly-skilled level (I almost beat all the Velo times, but I dont' even want to bother with the Dev times. Those are for the real hardcore gamers).
+
