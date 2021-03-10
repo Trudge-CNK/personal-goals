@@ -21,7 +21,7 @@ TV
 - [ ] My Hero Academia
 - [X] Chocolate Panic Picture Show
 - [X] Queen's Gambit
-- [ ] WandaVision
+- [X] WandaVision
 
 Movies
 
