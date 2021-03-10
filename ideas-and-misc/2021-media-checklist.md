@@ -5,7 +5,7 @@ Feel free to add to the list!
 ## 2021
 
 Video Games
-- [ ] Crash Team Racing: Nitro-Refueled (Switch)
+- [X] Crash Team Racing: Nitro-Refueled (Switch)
 - [X] Donkey Kong Country Returns Tropical Freeze (Switch)
 - [ ] Pokemon Shield (Switch)
 
