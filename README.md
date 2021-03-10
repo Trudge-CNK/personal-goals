@@ -11,10 +11,10 @@ Personal goals template Una Kravets made open source for accessibility across co
 - [ ] 100 Hours of free code camp
 - [ ] 33 Hours of Yugioh Goat Format
 
-# [2/2021]
+# [3/2021]
 
 ### This Month's Focus:
-I want to finish off Crash Team Racing so I actually have something done. I also want to then start distributing my time more equally between my tasks.
+I want to finish off my Yugioh goal so I can focus on goals that have a more satisfying end to them.
 
 ### Things I'll Do in the Future:
 
