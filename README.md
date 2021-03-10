@@ -6,9 +6,10 @@ Personal goals template Una Kravets made open source for accessibility across co
 ## Thanks to https://modernmrsdarcy.com/100-hour-rule/ (100 hours of x)
 ## Thanks to 100DaysofCode (100 days of x)
 
-- [ ] 33 Hours of Crash Team Racing
+- [X] 33 Hours of Crash Team Racing
 - [ ] 100 Hours of TEFL
 - [ ] 100 Hours of free code camp
+- [ ] 33 Hours of Yugioh Goat Format
 
 # [2/2021]
 
