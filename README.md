@@ -13,7 +13,7 @@ Personal goals template Una Kravets made open source for accessibility across co
 # [3/2021]
 
 ### This Month's Focus:
-I want to finish off my Yugioh goal so I can focus on goals that have a more satisfying end to them.
+Get into a good rhythm of living prayerfully.
 
 ### Things I'll Do in the Future:
 
