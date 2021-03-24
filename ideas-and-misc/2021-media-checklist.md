@@ -8,6 +8,7 @@ Video Games
 - [X] Crash Team Racing: Nitro-Refueled (Switch)
 - [X] Donkey Kong Country Returns Tropical Freeze (Switch)
 - [ ] Pokemon Shield (Switch)
+- [ ] Pokemon Snap
 
 TV
 - [X] Community
@@ -22,12 +23,16 @@ TV
 - [X] Chocolate Panic Picture Show
 - [X] Queen's Gambit
 - [X] WandaVision
+- [ ] IT Crowd
 
 Movies
 
 Books
 
 Comics
+
+Youtube Channels
+- [ ] Abroad in Japan
 
 ## On Deck
 
