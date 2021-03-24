@@ -7,9 +7,8 @@ Personal goals template Una Kravets made open source for accessibility across co
 ## Thanks to 100DaysofCode (100 days of x)
 
 - [X] 33 Hours of Crash Team Racing
-- [ ] 100 Hours of TEFL
-- [ ] 100 Hours of free code camp
-- [ ] 33 Hours of Yugioh Goat Format
+- [ ] 100 Sessions of TEFL
+- [ ] Learning How to Learn Coursera Certificate
 
 # [3/2021]
 
