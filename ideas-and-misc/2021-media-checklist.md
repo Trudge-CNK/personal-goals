@@ -23,7 +23,7 @@ TV
 - [X] Chocolate Panic Picture Show
 - [X] Queen's Gambit
 - [X] WandaVision
-- [ ] IT Crowd
+- [X] IT Crowd
 
 Movies
 
