@@ -152,3 +152,7 @@ I know this isn't the healthiest plan, but I think it's the only one I have avai
 **3/29/2021**
 ---
 I've been feeling a good bit better in recent days so that's good. I finally have a completely set system for listening and learning from Japanesepod101 in my car. I still haven't been able to start any of my major learning goals, but I have been able to solidify my nap schedule a bit more. I finally made my morning alarm nigh unbreakable so that's an improvement. I do feel like I'm making progress, but I have just a few things that I'd like to continue optimizing so I can have consistent days. 
+
+**3/30/2021**
+---
+This day was a bust, but I'm not really sure what else I would have done with it. I got some todos and stuff done in the morning, but the afternoon was killed because there were some contractors working on a room in the house. I guess I don't really have any other comments than that. There just wasn't really anything for me to do but try to keep the dog relaxed while the workers worked.
