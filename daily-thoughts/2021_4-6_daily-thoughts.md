@@ -1,0 +1,3 @@
+**4/1/2021**
+---
+This is a weird thought, but I was thinking about the methodological naturalism that you kind of have to employ when working in a lab. Even if you believe in the possibility of miracles as a Christian, you have to forgo that a bit in order to get reproducible scientific results. I think I might have to do a version of that for my own life. Even though a lot of people are motivated to live better because of their Christian faith, my faith tends to bring me a lot of depression and listlessness because I don't feel worthy to be counted among the saints. I also tend to feel like this life doesn't matter a whole bunch because 1. I'll live foreer anyway and 2. I don't have to worry about the direction of my life because God has a plan for me. 
