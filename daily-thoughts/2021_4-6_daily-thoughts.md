@@ -5,3 +5,7 @@ This is a weird thought, but I was thinking about the methodological naturalism 
 **4/2/2021**
 ---
 Today was fine, but unproductive. I forgot some important things for work so I ended up having to retrace a lot of my steps, leading to a ridiculously long work day. I had a tiny bit of time in the afternoon/evening, but I also had to fit in an online Good Friday service (can't wait to get the vaccine). I was left with precious little time so I had a day that was responsible but overwhelmingly average.
+
+**4/3/2021**
+---
+I had a pretty crappy day. Work went absolutely fine except for my dog trying to kill himself by running near a super busy 4 lane road and giving me a panic attack. My Mom had an emergency at work so I ended up watching the puppy for longer than I expected. After that, I went to my tried and true absolute waste of an afternoon. I think I'm going to try to use an empty room in the house as a safe space to get away from technology. I can either safely nap there or just meditate so that I can just reset myself for the rest of the day.
