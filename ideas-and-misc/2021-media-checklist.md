@@ -24,6 +24,7 @@ TV
 - [X] Queen's Gambit
 - [X] WandaVision
 - [X] IT Crowd
+- [ ] The Falcon and the Winter Sodier
 
 Movies
 
