@@ -1,10 +1,8 @@
 **Currently Listening**  
 Brought to You By (Business Insider)  
-One From the Vaults  
-Exploring My Strange Bible  
+One From the Vaults    
 Shrink for the Shy Guy  
 Vital Signs RZIM  
-Reflections (Bible Project)  
 
 **Caught up to**  
 Podcast-19  
@@ -25,3 +23,5 @@ Common Sense with Dan Carlin
 Ask Away RZIM  
 Doctor NerdLove Podcast  
 Abroad in Japan Podcast  
+Reflections (Bible Project)
+Exploring My Strange Bible
