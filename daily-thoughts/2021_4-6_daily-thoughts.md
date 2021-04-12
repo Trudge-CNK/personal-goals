@@ -21,3 +21,6 @@ This day went pretty well. I managed to do 3 of the 4 major things I planned in 
 **4/9/2021**
 I fell off the wagon there for a couple days. The main culprit this time was me trying to be too fancy with my sleep schedule. I work best in the mornings so I was waking up at crazy times. I did manage to learn things in the morning so that part was working well. The main problem was that I would then crash in the afternoon when I wanted to study some more. I would take multiple hour naps near when I wanted to fall asleep. The excessive naps led to me not being able to fall alseep when I wanted to, leaving me even more tired the next day. It got so bad that I just felt like a complete zombie the one day. I've worked the day around so I have a sleep schedule built around 90 minute sleep cycles. I'm also taking a bit of caffeine more wisely so I don't crash so hard. Finally, I am alternating how early I wake up so I don't have too much sleep debt.
 
+**4/12/2021**
+---
+I'm done. I had high hopes for using this copy of Una's personal goals so I could open source my progress and successes, but I've made little to no headway as usual. This will be my last update on this repository. I plan on restarting my progress on my lifestyle-challenge repository.
